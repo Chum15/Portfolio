@@ -5,4 +5,4 @@
 Успешно прошел уже 3 модуля и буду продолжать в том же духе!  
 В будующем планирую сменить специализацию и заниматься тем что мне действительно интересно, 
 а не работать только лишь ради денег.  
-[smile](C:\Users\chum6\Downloads\1675587345_www-funnyart-club-p-prikolnaya-ulibka-prikoli-64.png)
+![smile](C:\Users\chum6\Downloads\1675587345_www-funnyart-club-p-prikolnaya-ulibka-prikoli-64.png)
